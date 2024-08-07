@@ -1,2 +1,2 @@
-👋 Hi, I’m Amritavarshini
-👀 I'm a B.tech CSE student
+👋 Hi, I’m Gurumoorthy
+👀 I'm a B.tech CSE (Cyber Security & Blockhain Technology) student
